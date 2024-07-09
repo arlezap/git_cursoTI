@@ -9,4 +9,4 @@ De novo maisuma linha!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
 
 Oiiiiee xD 
 
-EU amo ela! ❤
+EU amo ela! ❤  (minha namorada no caso!)
