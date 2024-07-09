@@ -6,3 +6,7 @@ Outra nova linha.
 Ta de volta o git!
 
 De novo maisuma linha!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+
+Oiiiiee xD 
+
+EU amo ela! ❤
